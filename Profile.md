@@ -1,1 +1,1 @@
-Welcome to my GitHub profile! My name Tharun Prakash
+Welcome to my GitHub profile! My name Tharun Prakash.
